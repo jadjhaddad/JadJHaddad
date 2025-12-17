@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JadJHaddad
-- 👀 I’m interested in Web Development
+- 👀 I’m interested in...
 - 🌱 I’m currently learning to survive
 - 💞️ I’m looking to collaborate on nothing I have 5 min a week to myself
 - 📫 You can reach me at jadjihadhaddad@gmail.com
